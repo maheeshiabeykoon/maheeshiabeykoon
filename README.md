@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋  Kasuni Maheeshi Abeykoon currently Psychology & Bussiness undergraduate at CIIHE - Colombo International Institute of Higher Education. Kasuni does research in Organizational Psychology ,Neuroscience ,Neuromarketing and Consumer Psychology 
 
 <!--
 **maheeshiabeykoon/maheeshiabeykoon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
